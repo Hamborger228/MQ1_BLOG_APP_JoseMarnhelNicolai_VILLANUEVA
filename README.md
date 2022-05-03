@@ -1,0 +1,1 @@
+# MQ1_BLOG_APP_JoseMarnhelNicolai_VILLANUEVA
